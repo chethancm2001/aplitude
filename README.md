@@ -1,5 +1,5 @@
 #  Aplitude
-1[maths :- speed up maths](https://youtu.be/YbecVX3vr9k)
+1 [**maths :- speed up maths**](https://youtu.be/YbecVX3vr9k)
 
 2[blood relation ](https://youtu.be/6dAICBbsx2M)
 
