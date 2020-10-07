@@ -7,7 +7,7 @@
 
 4 [**coding decoding:-1**](https://youtu.be/XwZAdVvrcBw)
 
-5 [*coding and decoding :-2*](https://youtu.be/6F3FJKqRYoM)
+5 [**coding and decoding :-2**](https://youtu.be/6F3FJKqRYoM)
 
 6 [**problems on ages :-1**](https://youtu.be/S0NnOJrEdGY)
 
