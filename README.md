@@ -13,4 +13,4 @@
 
 7 [**problems on ages :-2**](https://youtu.be/Lifw5pyA8HE)
 
-8 [**comminication skills ](https://www.youtube.com/watch?v=56awwrv8Lwc&feature=youtu.be)
+8 [**comminication skills** ](https://www.youtube.com/watch?v=56awwrv8Lwc&feature=youtu.be)
