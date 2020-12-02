@@ -16,3 +16,7 @@
 8 [**comminication skills** ](https://www.youtube.com/watch?v=56awwrv8Lwc&feature=youtu.be)
 
 9 [**Ratio and Propotion**](https://www.youtube.com/watch?v=q3UL4nfc4N8&feature=youtu.be)
+
+
+
+10[** HCF and LCM**](https://www.youtube.com/watch?v=x6myvGb5Vuk)
